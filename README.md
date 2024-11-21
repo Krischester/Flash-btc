@@ -14,12 +14,12 @@ All Web 3 Wallets Supported ⭐️ Stays Life Long ⭐️
 
 Website - https://t.me/allianceflashdeal
 
-Download Free Flash USDT Sender Software In Our platform - https://t.me/allianceflashdeal
+Download Free Flash Bitcoin Sender Software In Our platform - https://t.me/allianceflashdeal
 
 
-Contact me - To Purchase The Flash Coins on Telegram - @krischester - https://t.me/krischester 
+Contact me - To Purchase The Flash Coins on Telegram - https://t.me/allianceflashdeal - https://t.me/allianceflashdeal 
 
-Want To Know About How Flash USDT Works ? And What Is Flash USDT ?
+Want To Know About How Flash Bitcoin Works ? And What Is Flash Bitcoin ?
 https://t.me/allianceflashdeal
 
 Flash USDT VS Real USDT - [https://youtu.be/wjaf7G8tzkI?si=zwnH3dBehAB3bviS](https://youtu.be/wjaf7G8tzkI?si=zwnH3dBehAB3bviS)
